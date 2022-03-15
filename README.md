@@ -1,0 +1,6 @@
+- Hi I'm BA7R
+- Ethical Hacker :)
+- Python,Html,Css,Bash Programmer👨🏻‍💻
+- Cyber Security Researcher 🕵🏻‍♂️
+- Penetration Tester 💻
+- CTF Player 🕹
